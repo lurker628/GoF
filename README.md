@@ -3,8 +3,6 @@ I'm trying to skip continued issues from previous books, like the clothing and G
 
 Lots of issues, of course, but let's hit the big ones:
 
-
-GoF
 The Weasleys' tickets to the match were GREAT.  Why was it depicted as being stuck in the nosebleeds.  The top of the stands are the BEST.  As actually occurred, it shows that the Weasleys, though poor with respect to liquid assets, are actually pretty well connected among decent people.
 
 The ridiculous decision to have Beauxbatons all female and Durmstrang all male.
