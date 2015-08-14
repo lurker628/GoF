@@ -41,7 +41,7 @@ What was the point of having Sirius' owl bite?  It serves absolutely no purpose 
 
 Still not a fan of how they do floo-communication, but that's artistic license.  We know that the faces can be fed toast, so this seems unlikely.
 
-"Magical water plants of the Highland Lochs?"  Because it really needed to be changed from "the Meditteranean?"
+"Magical water plants of the Highland Lochs?"  Because it really needed to be changed from "the Mediterranean?"
 
 Hermione's recitation of how to get the message to Harry was pointless.  It's just "Ron says," the point being that Ron won't tell him directly.  There's no point in having the chain of messages; that it was "revealed" later to be a ruse was idiotic.  The scene also implies that Hermione (and Ginny) are taking Ron's side over Harry's, which isn't the case.
 
