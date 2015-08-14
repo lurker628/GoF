@@ -51,7 +51,7 @@ Cedric's done pretty well.  Included him being against the badges.
 
 Malfoy wouldn't deign to climb a tree.  Ferret scene moved way up - we missed Ron's reaction.  Also, putting the Malfoy-Ferret into Crabbe's pants is just sick.
 
-Reasonble the way they wanted Moody's chest to scream, and they played it off in character well.  Rest of the scene was good, too.
+Reasonable the way they wanted Moody's chest to scream, and they played it off in character well.  Rest of the scene was good, too.
 
 Weasley twins running bets was well done.
 
