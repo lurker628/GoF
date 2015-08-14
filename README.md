@@ -87,6 +87,6 @@ Good job on the Snape encounter about stealing, though it'd be better to have sa
 
 Third task: More Filch comic relief, but fine.  Cedric begging Harry to "save" him from the maze?
 
-"I'd introduce you, but word has it you're almost as famous as me these days."  Really?  He .  Also Voldemort explaining the love-shield?  That whole point is that it's not something he'd have ever thought of!  Significant character change.  Voldemort running back and forth?  Far too self-important for that!  Harry's mouthed "no...no..." after Voldemort's announcement about killing him is likewise out of character - it's a big deal that Harry *decided* to face him.  Voldemort was supposed to be shocked (and somewhat afraid) by the twin cores connection, not just vaguely determined.
+"I'd introduce you, but word has it you're almost as famous as me these days."  Really?  Also Voldemort explaining the love-shield?  That whole point is that it's not something he'd have ever thought of!  Significant character change.  Voldemort running back and forth?  Far too self-important for that!  Harry's mouthed "no...no..." after Voldemort's announcement about killing him is likewise out of character - it's a big deal that Harry *decided* to face him.  Voldemort was supposed to be shocked (and somewhat afraid) by the twin cores connection, not just vaguely determined.
 
 Moody giving himself away with the graveyard thing...fine.  Wrong, but reasonable.
