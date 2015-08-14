@@ -45,7 +45,7 @@ Still not a fan of how they do floo-communication, but that's artistic license. 
 
 Hermione's recitation of how to get the message to Harry was pointless.  It's just "Ron says," the point being that Ron won't tell him directly.  There's no point in having the chain of messages; that it was "revealed" later to be a ruse was idiotic.  The scene also implies that Hermione (and Ginny) are taking Ron's side over Harry's, which isn't the case.
 
-"C'est magnifique" ...about dragons in cages, so you can't even see them?  Not a book-problem, but just dumb.  On the other hand, having Ron know about the dragons turns the spat-between-friends into something actively harmful.  Ron was mad.  In fact, finding out about the dragons is what brought him to his senses!
+"C'est magnifique" ...about dragons in cages, so you can't even see them?  Not a book-problem, but just dumb.  On the other hand, having Ron know about the dragons turns the spat-between-friends into something actively harmful.  Ron was mad, sure, but finding out about the dragons is what brought him to his senses!
 
 Cedric's done pretty well.  Included him being against the badges.
 
