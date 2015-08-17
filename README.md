@@ -15,6 +15,7 @@ Padma is not in Gryffindor!  It's actually a thing, to show that not all familie
 
 As with the fight against Quirrell, the second task again messes with Harry's character.  As shown, Harry submitted to the merpeoples' interference, and then only pulled Gabrielle free because they were gone.  In the text, Harry STOOD UP to them, rather than just being opportunistic.  That is, he showed his pure Gryffindor side, instead of a Gryffindor/Slytherin mix!
 
+Many of the maze changes - fine, they wanted more visual action.  But it's a big deal that Harry and Cedric, though technically in competition, only ever helped one another.  *Especially* at the end - in the text, Harry IMMEDIATELY shouted his warning to Cedric, and IMMEDIATELY went to his aid.  (After all, Harry has a saving people thing.)  Post-fight, it was Cedric who told Harry to take the cup, on the simple grounds that Cedric couldn't physically win the race - Cedric was sticking to the rules, being gracious in defeat.  No leaving Cedric in danger, no undertone of distrust and betrayal.  The movie was a total misportrayal of both boys' characters.
 
 
 Other notes:
@@ -86,6 +87,7 @@ Dumbledore continues to be just flat out terrible - it's "maddening" that detail
 Good job on the Snape encounter about stealing, though it'd be better to have said "have brewed," not "are brewing," so as to allow the confusion with the potion from CoS.  Laid it on a bit thick by having Snape say polyjuice himself, but that's pretty much necessary for the medium.
 
 Third task: More Filch comic relief, but fine.  Cedric begging Harry to "save" him from the maze?
+
 
 "I'd introduce you, but word has it you're almost as famous as me these days."  Really?  Also Voldemort explaining the love-shield?  That whole point is that it's not something he'd have ever thought of!  Significant character change.  Voldemort running back and forth?  Far too self-important for that!  Harry's mouthed "no...no..." after Voldemort's announcement about killing him is likewise out of character - it's a big deal that Harry *decided* to face him.  Voldemort was supposed to be shocked (and somewhat afraid) by the twin cores connection, not just vaguely determined.
 
