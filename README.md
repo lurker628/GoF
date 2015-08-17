@@ -1,4 +1,4 @@
-I'm trying to skip continued issues from previous books, like the clothing and Ginny's hair.  ("[Tonks'] hair was tomato-red and waist length today; she looked like Ginny's older sister" (OotP 170).  *Tomato* red.  A simple bottle of hair dye could have given Ginny the correct hair color.)  I also skipped the continued characterization of giving Hermione both her own and Ron's assets, unless notable for a secondary reason as well.
+I'm trying to skip continued issues from previous books, like the clothing and Ginny's hair.  ("[Tonks'] hair was tomato-red and waist length today; she looked like Ginny's older sister" (OotP 170).  *Tomato* red.  A simple bottle of hair dye could have given Ginny the correct hair color.)  I also skipped the continued characterization of giving Hermione both her own and Ron's assets, unless notable for a secondary reason as well.  This isn't wholly complete, but it's a good start.
 
 
 Lots of issues, of course, but let's hit the big ones:
